@@ -2,4 +2,4 @@
 
 il mio bellissimo libro fantasy
 
-scritto da me
+scritto da me e basta
