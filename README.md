@@ -4,4 +4,4 @@ il mio bellissimo libro fantasy straordinario
 
 scritto da me e basta
 
-lo chiamerò starobot
+lo chiamerò starobot perchè è bello
